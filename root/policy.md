@@ -1,3 +1,5 @@
+![alt text](https://github.com/Prudent-Solutions/privacy-policy/blob/main/root/atm_leaf.jpg?raw=true)
+
 Privacy Policy  
 ----------------
 
